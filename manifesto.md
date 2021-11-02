@@ -42,5 +42,5 @@ We may be asking a lot out of you. There may be times that you are not able to a
 
 > By mutual care, we can accomplish more.  
 > We can thrive longer.  
-> We can be happier.
+> We can be happier.  
 > **We can create a better world for all of us.**
